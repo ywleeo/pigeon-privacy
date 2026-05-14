@@ -42,7 +42,7 @@ If this policy changes, the updated version will be posted at this same address 
 
 ### Contact
 
-Questions? Contact: dingtee@gmail.com
+Questions? Contact: ywleeo@gmail.com
 
 ---
 
@@ -84,5 +84,5 @@ Pigeon 不会有意收集儿童的个人信息。由于 Pigeon 不收集、不�
 
 ### 联系我们
 
-如有疑问,请联系:dingtee@gmail.com
+如有疑问,请联系:ywleeo@gmail.com
 
